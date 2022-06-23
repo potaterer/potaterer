@@ -2,4 +2,4 @@
 
 i'm a infulential programmer
 
-i lik potatos
+i like potatos
