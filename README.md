@@ -2,4 +2,4 @@
 
 i'm a infulential programmer
 
-i like potatos
+i like potatoes
