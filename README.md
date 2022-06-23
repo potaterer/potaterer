@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @potaterer
-i'ma infulentijal programerrr
+i'ma infulential programerrr
 il ike poteatws
